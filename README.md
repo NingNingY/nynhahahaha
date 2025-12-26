@@ -1,2 +1,0 @@
-# nynhahahaha
-personal website
